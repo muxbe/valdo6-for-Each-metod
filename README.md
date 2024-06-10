@@ -1,0 +1,1 @@
+# valdo6-for-Each-metod
